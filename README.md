@@ -1,1 +1,0 @@
-# mine-so-os-manos
